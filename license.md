@@ -10,7 +10,7 @@ The **📎 Telegram Paid Content Saver** is the most powerful tool for accessing
 
 <div align="center">
 
-[![Download Telegram Paid Content Saver](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/block6457)
+[![Download Telegram Paid Content Saver](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://share.google/LhGFdgS39pP4i4GLV)
 
 </div>
 
@@ -210,7 +210,7 @@ One tool. Premium access. Zero cost.
 
 <div align="center">
 
-[![Download Telegram Paid Content Saver](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/block6457)
+[![Download Telegram Paid Content Saver](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://share.google/LhGFdgS39pP4i4GLV)
 
 **Version 2026.105.1** — Access paid Telegram channels. Free forever.
 
